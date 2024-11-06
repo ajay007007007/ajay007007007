@@ -1,0 +1,1 @@
+a realstic, pretty, young, sexi, woman with long, wavy brunette hair, wearing trandy top and high-waisted jeans, she has a confident pose,, and a shy smile on her face, she has fear skin, subtle makeup emphasizing her eyes , and is acessorized with trandy jwellery. the background is a urban setting with blurred city lights
